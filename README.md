@@ -1,1 +1,1 @@
-# auqalife-privacy-policy
+# auqalife
